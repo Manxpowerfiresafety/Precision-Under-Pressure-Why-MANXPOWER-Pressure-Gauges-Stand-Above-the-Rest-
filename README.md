@@ -23,3 +23,15 @@ Beyond just delivering quality products, MANXPOWER is committed to excellent cus
 <h3>Conclusion</h3>
 In safety-critical and performance-sensitive environments, choosing the right <a href="https://manximpex.com/fire-extinguisher-accessories-2/" title="pressure gauge" alt"pressure gauge" <a>pressure gauge</a> is not just a preference — it’s a necessity. With its wide range of precision instruments including Spring Pressure Gauges, 37mm Pressure Gauges, and Diaphragm Pressure Gauges, MANXPOWER continues to set the standard in pressure monitoring technology. When you choose MANXPOWER, you choose reliability, innovation, and peace of mind.<br>
 <b>MANXPOWER – Precision That Protects.</b>
+<h3>Get in touch with us:</h3>
+<b>Visit: https://manximpex.com/fire-extinguisher-accessories-2/ </b><br>
+<b>E-mail: info@manximpex.com </b><br>
+<b>Contact Number: +91- 7065192900, +91- 7428115550</b><br>
+<b>Address: 3963/9, Ground Floor, City Market, Ajmeri Gate, Delhi 110006 </b><br>
+<h3>Follow us on:</h3>
+<b>Instagram: https://www.instagram.com/manximpex/ </b><br>
+<b>Facebook: https://www.facebook.com/manximpex/ </b><br>
+<b>LinkedIn: https://in.linkedin.com/company/manx-impex </b><br>
+<b>Youtube: https://www.youtube.com/c/ManxImpex  </b><br>
+<h3>Read our blog:</h3>
+<b>How to Properly Maintain and Inspect Fire Extinguishers: https://manximpex.com/maintain-inspect-fire-extinguishers/</b>
